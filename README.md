@@ -22,8 +22,10 @@
 
 **Актуальные адреса зеркал (примеры на сегодня):**
 **[https://stake3099.com](https://stake3099.com/?offer=prize777&c=PKqK54ob)** 🔗 ✅ LIVE на лето 2026 года
+
 **[https://stake3061.com](https://stake3061.com/?offer=prize777&c=PKqK54ob)** 🔗
-**[https://stake3099.com](https://stake3099.com/?offer=prize777&c=PKqK54ob)** 🔗
+
+
 
 > 💡 *Совет:* добавить официальное зеркало в закладки браузера, чтобы всегда быть в игре за пару секунд.
 
